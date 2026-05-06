@@ -1,2 +1,2 @@
 #Emiliano Victor Vallejos
-## Habilidades Técnicas
+## Habilidades Técnicas.
